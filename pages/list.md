@@ -2,19 +2,19 @@
 
 - Some interesting solo piano pieces, preferably romantic era. Some composer suggestions (some did more piano compositions than others):
 
-    - Carl Maria von Weber, 
-    - Edvard Grieg, 
-    - Anton Rubinstein, 
-    - Camille Saint-Saens, 
-    - Alexander Borodin, 
-    - Nikolai Rimsky-Korsakov, 
-    - Modest Mussorgsky, 
-    - Cesar Cui, 
-    - Antonin Dvorak, 
-    - Edward MacDowell, 
-    - Enrique Granados, 
-    - Alexander Scriabin, 
-    - Bela Bartok (only pre-WW1 Bartok though, before he got too experimental), 
+    - Carl Maria von Weber
+    - Edvard Grieg
+    - Anton Rubinstein
+    - Camille Saint-Saens
+    - Alexander Borodin
+    - Nikolai Rimsky-Korsakov
+    - Modest Mussorgsky
+    - Cesar Cui
+    - Antonin Dvorak
+    - Edward MacDowell
+    - Enrique Granados
+    - Alexander Scriabin
+    - Bela Bartok (only pre-WW1 Bartok though, before he got too experimental)
     - Sergei Prokofiev
 
 - I purchased some cycle clothes which'll come around my birthday (some of the Cambridge University cycle kit for this year) that I could be reimbursed for

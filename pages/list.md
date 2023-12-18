@@ -1,32 +1,29 @@
 ## Christmas List
 
-- Some interesting solo piano pieces, preferably romantic era. Some composer suggestions (some did more piano compositions than others):
+- Some interesting solo piano pieces. Some composer suggestions (some did more piano compositions than others). Anything in or out of this list is fine really though:
 
     - Carl Maria von Weber
-    - Edvard Grieg
     - Anton Rubinstein
     - Camille Saint-Saens
     - Alexander Borodin
     - Nikolai Rimsky-Korsakov
     - Modest Mussorgsky
-    - Cesar Cui
     - Antonin Dvorak
-    - Edward MacDowell
     - Enrique Granados
     - Alexander Scriabin
     - Bela Bartok (only pre-WW1 Bartok though, before he got too experimental)
     - Sergei Prokofiev
 
-- I purchased some cycle clothes which'll come around my birthday (some of the Cambridge University cycle kit for this year) that I could be reimbursed for
-    - Socks: £8.16
-    - MTB Long Sleeve Jersey:  £62.58
+- [A cast iron tortilla press](https://amzn.eu/d/d2p3ngJ)
+ 
+- [Russian short stories for intermediate learners](https://amzn.eu/d/idQyoEq)
 
-- Cycling balaclava (wiggle do one thats £11)
+- [Spice grinder](https://amzn.eu/d/6ePBA9N), as my old one has stopped working
 
-- Ice cream maker - something like the one I'd had before would be fine - my current one has started leaking the coolant out the sides :(
+- A nice fancy hot chocolate of some sort
 
-- A warm snood for skiing (I only have a very thin one currently)
+- A set of bright front and back bike lights
 
-- A cookbook for an interesting/different cuisine i.e. not like Indian or Chinese or Thai or Western European
+- [Camping drybag(s)](https://ultralightoutdoorgear.co.uk/ultra-sil-nano-drysacks/)
 
-- New magnetic bottle to replace the one that I lost somewhere near the source of the river Tees (I still have the attachment part for the old one)
+- [Camping frying pan](https://ultralightoutdoorgear.co.uk/ultra-sil-nano-drysacks/)

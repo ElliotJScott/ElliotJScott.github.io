@@ -26,4 +26,4 @@
 
 - [Camping drybag(s)](https://ultralightoutdoorgear.co.uk/ultra-sil-nano-drysacks/)
 
-- [Camping frying pan](https://ultralightoutdoorgear.co.uk/ultra-sil-nano-drysacks/)
+- [Camping frying pan](https://amzn.eu/d/92kOJK8)

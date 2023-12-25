@@ -27,3 +27,19 @@
 - [Camping drybag(s)](https://ultralightoutdoorgear.co.uk/ultra-sil-nano-drysacks/)
 
 - [Camping frying pan](https://amzn.eu/d/92kOJK8)
+
+- Vinyl record - some suggestions:
+
+    - Sufjan Stevens - Carrie & Lowell
+    - The Strokes - Is This It
+    - Talk Talk - Laughing Stock
+    - Television - Marquee Moon
+    - Queens Of The Stone Age - ...Like Clockwork
+    - Low - Double Negative
+    - Belle & Sebastian - If You're Feeling Sinister
+    - Animal Collective - Merriweather Post Pavilion
+    - Jeff Buckley - Grace
+    - Magnolia Electric Co. - The Magnolia Electric Co.
+    - Pixies - Doolittle
+    - Tyler the Creator - Igor
+    - Wilco - Yankee Hotel Foxtrot

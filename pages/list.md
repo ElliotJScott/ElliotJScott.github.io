@@ -21,3 +21,10 @@
 
 - Some interesting spice or spice mix from [terre exotique](https://www.terreexotique.com/) (though not the aboriginal australian one as I just bought that)
 
+- Running water bottle
+
+- Running hydration vest
+
+- A mexican recipe book
+
+- Earplugs for concerts
